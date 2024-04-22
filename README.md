@@ -1,1 +1,1 @@
-# AMAZON_CLONE
+https://lucky939.github.io/AMAZON_CLONE/
